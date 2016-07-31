@@ -1,0 +1,12 @@
+# Site settings
+title: Becca and Tyler Wedding
+email: ttreny@gmail.com
+description: > # this means to ignore newlines until "baseurl:"
+   Becca Tys The Knot
+baseurl: "" # the subpath of your site, e.g. /blog/
+url: "http://beccatyestheknot.com" # the base hostname & protocol for your site
+twitter_username: 
+github_username:  
+
+# Build settings
+markdown: kramdown
