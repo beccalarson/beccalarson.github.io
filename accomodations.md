@@ -33,7 +33,7 @@ We have room blocks at:
 
 **Saratoga Hilton** (downtown) All reservations can be made [here](https://resweb.passkey.com/go/LarsonRenyWeddingBlock).
 
-**Gideon Putnam** (in Saratoga Spa State Park) 1-866-890-1171. Simply mention the Larson/Reny Wedding when making the reservation.
+**Gideon Putnam** (in Saratoga Spa State Park) 1-866-890-1171. Simply mention the Larson/Reny Wedding when making the reservation and/or mention the group code: 9N93VI.
 
 There are many hotels/Airbnbs in the area if other accommodations are desired.
 
