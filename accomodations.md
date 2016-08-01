@@ -29,7 +29,7 @@ The following morning, the wedding party will host a brunch at the Gideon Putnam
 
 We have room blocks at: 
 
-**Courtyard Marriott** (downtown) All reservations must be made at the Courtyard Marriott by the cut-off date of May 16, 2017.  You can make a reservation by calling the reservations department: 1-866-210-9325 and specifying the group name: *Larson/Reny Wedding Room Block.* 
+**Courtyard Marriott** (downtown) All reservations must be made at the Courtyard Marriott by the cut-off date of May 16, 2017.  You can make a reservation by calling the reservations department: 1-866-210-9325 and specifying the group name: *Larson/Reny Wedding Room Block* or through this [link](http://www.marriott.com/meeting-event-hotels/group-corporate-travel/groupCorp.mi?resLinkData=Larson/Reny%20Wedding%20Room%20Block%5Ealbss%60LRWLRWA%7CLRWLRWB%60209.00%60USD%60false%601%606/16/17%606/18/17%605/16/17&app=resvlink&stop_mobi=yes)
 
 **Saratoga Hilton** (downtown) All reservations can be made [here](https://resweb.passkey.com/go/LarsonRenyWeddingBlock).
 
