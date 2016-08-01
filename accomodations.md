@@ -15,19 +15,19 @@ permalink: /accommodations/
 
 **Planes**: Anybody wishing to fly can fly directly into Albany International Airport. Saratoga Springs is located about 30 minutes north of Albany.
 
-**Trains**: It is also accessible via Amtrak train.
+**Trains**: Amtrak stops in both Albany and Saratoga Springs.
 
-**Automobiles**: ...and is a 3 to 4 hour drive from Manhattan or 6 from Damariscotta, Maine.
+**Automobiles**: The drive is about 3 to 4 hours from Manhattan or 6 from Damariscotta, Maine.
 
 # Ceremony and Reception
 
-The ceremony and reception will both be taking place at the [Saratoga Springs Museum of Dance](http://www.dancemuseum.org/) on June 17, 2017 from 5:30 to 11 PM.
+The ceremony and reception will both be taking place at the [National Museum of Dance](http://www.dancemuseum.org/) on June 17, 2017 from 5:30 to 11 PM.
 
-The following morning, the wedding party will host a brunch at the Gideon Putnam. All are welcome.
+The following morning, the wedding party will host a brunch at the Gideon Putnam from 9 to 11 AM. All are welcome.
 
 # Accommodations
 
-We have room blocks at the Courtyard Marriott (downtown), the Saratoga Hilton (downtown), and the Gideon Putnam (in Saratoga Spa State Park). There are many hotels/Airbnbs in the area if other accommodations are desired.
+We have room blocks at the [Courtyard Marriott](http://www.marriott.com/hotels/travel/albss-courtyard-saratoga-springs/) (downtown), the [Saratoga Hilton](http://www3.hilton.com/en/hotels/new-york/the-saratoga-hilton-ALBSAHF/index.html)(downtown), and the [Gideon Putnam](http://www.gideonputnam.com/) (in Saratoga Spa State Park). There are many hotels/Airbnbs in the area if other accommodations are desired.
 
 # Friday Night Cocktails
 
