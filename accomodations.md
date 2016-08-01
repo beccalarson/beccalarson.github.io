@@ -27,7 +27,15 @@ The following morning, the wedding party will host a brunch at the Gideon Putnam
 
 # Accommodations
 
-We have room blocks at the [Courtyard Marriott](http://www.marriott.com/hotels/travel/albss-courtyard-saratoga-springs/) (downtown), the [Saratoga Hilton](http://www3.hilton.com/en/hotels/new-york/the-saratoga-hilton-ALBSAHF/index.html)(downtown), and the [Gideon Putnam](http://www.gideonputnam.com/) (in Saratoga Spa State Park). There are many hotels/Airbnbs in the area if other accommodations are desired.
+We have room blocks at: 
+
+**Courtyard Marriott** (downtown) All reservations must be made at the Courtyard Marriott by the cut-off date of May 16, 2017.  You can make a reservation by calling the reservations department: 1-866-210-9325 and specifying the group name: *Larson/Reny Wedding Room Block.* 
+
+**Saratoga Hilton** (downtown)
+
+**Gideon Putnam** (in Saratoga Spa State Park) 1-866-890-1171. Simply mention the Larson/Reny Wedding when making the reservation.
+
+There are many hotels/Airbnbs in the area if other accommodations are desired.
 
 # Friday Night Cocktails
 
