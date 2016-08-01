@@ -54,15 +54,13 @@ To help you get a feel of the geography of Saratoga, below is a map of key locat
 
 **Friday**
 
-6:00 PM Rehearsal dinner for immediate family only at Harvest and Hearth. 
-
 8:30 - 10:00 PM Welcome cocktails at Hamlet and Ghost. All are welcome. 
 
 **Saturday**
 
 5:30 - 11:00 PM Ceremony and Reception
 
-11:00 PM Drinks at Desperate Annies, Downtown Saratoga Springs
+11:00 PM Drinks at Desperate Annies, Downtown Saratoga Springs. [Doughboys](http://www.dailygazette.com/news/2011/aug/19/0819_doughboys/?print) likely to follow.
 
 **Sunday**
 
