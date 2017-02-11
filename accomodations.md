@@ -19,12 +19,6 @@ permalink: /accommodations/
 
 **Automobiles**: The drive is about 3 to 4 hours from Manhattan or 6 from Damariscotta, Maine.
 
-# Ceremony and Reception
-
-The ceremony and reception will both be taking place at the [National Museum of Dance](http://www.dancemuseum.org/) on June 17, 2017 from 5:30 to 11 PM.
-
-The following morning, the wedding party will host a brunch at the Gideon Putnam from 9 to 11 AM. All are welcome.
-
 # Accommodations
 
 We have room blocks at: 
@@ -37,34 +31,15 @@ We have room blocks at:
 
 There are many hotels/Airbnbs in the area if other accommodations are desired.
 
-# Friday Night Cocktails
-
-For those arriving a night early, we will be having cocktails downtown at [Hamlet and Ghost](http://www.hamletandghost.com/). We will update this site with details once they are confirmed.
-
 # Mapping It
 
 To help you get a feel of the geography of Saratoga, below is a map of key locations for the weekend! 
 
 <iframe src="https://www.google.com/maps/d/embed?mid=13oM7zjFN5XRmTGQpcxuEYc7wlRc" width="640" height="480"></iframe>
 
-&nbsp;
 
 
-# Working Schedule
 
-**Friday**
-
-8:30 - 10:00 PM Welcome cocktails at Hamlet and Ghost. All are welcome. 
-
-**Saturday**
-
-5:30 - 11:00 PM Ceremony and Reception
-
-11:00 PM Drinks at Desperate Annies, Downtown Saratoga Springs. [Doughboys](http://www.dailygazette.com/news/2011/aug/19/0819_doughboys/?print) likely to follow.
-
-**Sunday**
-
-9:00 - 11:00 AM Brunch at Gideon Putnam hotel. All are welcome.
 
  
 
