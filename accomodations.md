@@ -1,6 +1,6 @@
 ---
 layout: page
-title: Planning Your Trip to 'Toga
+title: Planning Your Trip
 permalink: /accommodations/
 ---
 
