@@ -8,12 +8,12 @@ permalink: /schedule/
 **8 PM**
 
 <section>
-  <img src="/img/hg.png" align="left" hspace="" />
+  <img src="/img/gaffneys.jpeg" align="left" hspace="" />
 </section>
 
 &nbsp;
 
-For those arriving a night early, we would love to have you join us for cocktails at [Hamlet and Ghost](http://www.hamletandghost.com/).
+For those arriving a night early, we would love to have you join us for cocktails at [Gaffneys](https://www.gaffneysrestaurant.com/).
 
 ## **Saturday June 17**
 
