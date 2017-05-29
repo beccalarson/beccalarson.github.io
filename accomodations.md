@@ -43,13 +43,13 @@ permalink: /accommodations/
 
 [Dairy Haus](http://www.dairyhaus.com/) *476 Maple Av*
 
-[Farmer’s Daughter](http://www.farmersdaughtersdrivein.com/) *882 N29*
+[Farmer’s Daughter](http://www.farmersdaughtersdrivein.com/) *882 NY-29*
 
 **Drinks**
 
 [Hamlet & Ghost](http://www.hamletandghost.com/) *24 Caroline Street*
 
-[Desperate Annie’s](http://www.desperateannies.com/home.html) (our college dive bar) *4 Caroline Street*
+[Desperate Annie’s](http://www.desperateannies.com/home.html) (our college dive bar) *12 Caroline Street*
 
 **Late Night Bites**
 
