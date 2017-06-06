@@ -44,3 +44,23 @@ Drinks at Desperate Annies, Downtown Saratoga Springs. [Doughboys](http://www.da
 &nbsp;
 
 The following morning, the wedding party will host a brunch at the [Gideon Putnam](http://www.gideonputnam.com/). All are welcome.
+
+## Getting Around
+
+**Shuttle Information**
+
+To The Wedding: Shufttles will run between the Gideon Putnam and the Museum of Dance every 10 minutes beginning at 4:45 on Saturday. The last shuttle will leave the Gideon at 5:15.
+
+After the Wedding: The shuttle will take guests back to the Gideon Putnam from 10:00 PM to 10:45 PM.
+
+Extend the Party? Take the shuttle from the Museum of Dance to downtown Saratoga at 11:00 PM to explore the nightlife on Caroline Street. The shuttle will take guests back to the Gideon Putnam beginning at 12:30PM.
+
+**Taxi Information**
+
+There are no ride-sharing programs in Saratoga Springs. We suggest using the following taxi services:
+
+Saratoga Taxi: 518.584.2700
+Saratoga Hybrid Cab: 518.698.4122
+Upstate Green Cab: 518.956.0332
+
+
